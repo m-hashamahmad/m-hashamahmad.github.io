@@ -79,4 +79,10 @@ Aspire Institute | New York, USA
 
 ## 📬 Contact
 
-Feel free to reach ou
+Feel free to reach out for collaborations, opportunities, or project discussions.
+
+📧 **hashamahmed193@gmail.com**  
+📞 **+92-317-6590083**  
+🌍 **Khanpur, Pakistan**
+
+---
